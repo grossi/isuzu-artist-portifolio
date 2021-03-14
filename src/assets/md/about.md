@@ -10,7 +10,7 @@ isuZuを反対から読んで「うずし」
 
 ご連絡は下記メール宛か
 
-- isuzu★bj8.so-net.ne.jp
+- isuzu★isuzu.work
 
 #### (★⇒@に変更)
 
